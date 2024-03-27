@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programming
 - 🌱 I’m currently learning JAVASCRIPT
 - 💞️ I’m looking to collaborate on Something
-- 📫 How to reach me _ U cant reac ME
+- 📫 How to reach me _ U cant reach ME
 - 😄 Pronouns: Mexanik
 - ⚡ Fun fact: I Sleep 2 hours a night
 
